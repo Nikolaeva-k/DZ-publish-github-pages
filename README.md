@@ -7,4 +7,4 @@
 Люблю делать задания в самый последний момент
 
     Когда тема дается сложнее, чем хотелось бы, я верю, что чем меньше расстояние от головы до экрана, тем быстрее я во всем разберусь! Выглядит это так:
-![](https://funny.klev.club/uploads/posts/2024-03/funny-klev-club-p-smeshnie-kartinki-kot-za-kompyuterom-8.jpg)
+![](https://github.com/user-attachments/assets/18b75703-ee0a-41fc-981c-fbe0f4c5aceb)
